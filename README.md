@@ -8,5 +8,5 @@ Seja bem-vindo(a) ao meu perfil
 
 ## Não entre em contato comigo!
 
-![image](https://github.com/PedroVirtual/PedroVirtual/assets/172657966/eccf90b5-5bae-4a2b-81bc-b1e45828a483)
+![gif](https://github.com/PedroVirtual/PedroVirtual/assets/172657966/eccf90b5-5bae-4a2b-81bc-b1e45828a483)
 
