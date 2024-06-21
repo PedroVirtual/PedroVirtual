@@ -8,5 +8,5 @@ Seja bem-vindo(a) ao meu perfil
 
 ## Não entre em contato comigo!
 
-![](https://github.com/PedroVirtual/PedroVirtual/assets/172657966/eccf90b5-5bae-4a2b-81bc-b1e45828a483)
+![](https://media1.tenor.com/m/_kI7sx9KsYEAAAAd/halo-master-chief.gif)
 
